@@ -12,6 +12,8 @@ Bemuse is a very fun game (better than most other rhythm games I've played (Some
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am adroit and have many talents, I love complexity, logic, math, and music, and I love rhythm games ^_^
 
+Jesus loves you!!! 💙💙💙💜💜💜
+
 <!--
 <picture>
  <source media="(prefers-color-scheme: dark)" srcset="YOUR-DARKMODE-IMAGE">
