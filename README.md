@@ -9,7 +9,6 @@ Bemuse is a very fun game (better than most other rhythm games I've played (Some
 - 🤔 I’m looking for help with: Creating custom Bemuse charts (I'm working on getting to reading everything, but I have to learn Assembly first (Which I'll be already learning after Haskell ^_^ :D :) :)
 - 💬 Ask me about: Anything for right now! :D
 - 📫 How to reach me: rick.rickster18@icloud.com
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am adroit and have many talents, I love complexity, logic, math, and music, and I love rhythm games ^_^
 
 Jesus loves you!!! 💙💙💙💜💜💜
